@@ -438,6 +438,10 @@ https://www.flickr.com/photos/birxphotos
 
 https://secure.flickr.com/photos/98310387@N02/sets/72157634449403220 Lisbon  
 
+https://secure.flickr.com/photos/legardien/sets/72157635404265017 Mosaïque, carreaux, etc.
+
+https://secure.flickr.com/photos/legardien/sets/72157635321157301 France (house names)
+
 
 
 ## Instagram
@@ -471,6 +475,9 @@ http://ceramique-architecturale.fr
 
 Street lettering from India and its neighbours  
 http://poojasaxena.wordpress.com/2014/04/29/street-lettering-from-india-and-its-neighbours
+
+Letters From Abroad  
+http://www.frerejones.com/blog/letters-from-abroad
 
 
 
