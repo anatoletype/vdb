@@ -76,6 +76,13 @@ Tipos Paulistanos
 A collection of architectural letterings, numbers and graphic elements found on buildings from São Paulo, Brazil.  
 http://tipospaulistanos.com.br
 
+TypeCollect - Found Typography Feed  
+http://typecollect.com
+
+OsloType - the most interesting and inspiring of Oslo’s signage  
+http://www.oslotype.com
+
+
 
 ## Books
 
@@ -231,6 +238,7 @@ Typotextur (Leipzig, unpublished)
 http://www.frankeckl.de/projects/typotextur
 
 
+
 ## Lettering manuals, albums & masters
 
 #### F R A N C E
@@ -333,6 +341,7 @@ Walter Schenk: Die Schriften des Malers.
 Gießen: Fachbuchverlag Dr. Pfanneberg & Co., 1950.
 
 
+
 ### Picture Archives
 
 Eugène Atget (Paris, early 20th century)  
@@ -345,11 +354,13 @@ Archiv Lucian Bernhard (Berlin, early 20th century)
 Berlin: Staatliche Museen zu Berlin, Kunstbibliothek, Bildarchiv.
 
 
+
 ## Videos
 
 Philippe Buschinger : Le gothique urbain, un voyage du côté du bien et du mal  
 http://dai.ly/xyai24  
 http://www.centrepompidou.fr/cpv/ressource.action?param.id=FR_R-f328cf8d8bfc261275c17348c3c8f9f&param.idSource=FR_E-d3224f871287a2a2e3792421f558022#
+
 
 
 ## Tumblrs
@@ -375,6 +386,15 @@ http://maltatype.com
 Bulgarian, German, Serbian signs  
 http://www.outletters.net
 
+typography in Krakow  
+http://krktype.tumblr.com
+
+palabras lugar (Mexico city)  
+http://palabraslugar.tumblr.com
+
+Types of Tings  
+http://typesoftings.tumblr.com
+
 En grosses lettres - collection de cartes postales typo-photo-graphiques (matches ?)  
 http://grosseslettres.tumblr.com
 
@@ -383,9 +403,10 @@ http://marcrouault.tumblr.com
 http://alaricgarnier.tumblr.com  
 
 
+
 ## Flickrs
 
-*Would be better to list streams dedicated to the subject, or collections* ^pascal
+*Would be better to list streams dedicated to the subject, or direct links to collections/albums* ^pascal
 
 https://secure.flickr.com/photos/hardwig Berlin, Leipzig, St.Gallen …
 
@@ -403,11 +424,20 @@ https://secure.flickr.com/photos/cpbischof/
 
 https://www.flickr.com/photos/27556454@N07/sets/72157623991937409/ Hamburg
 
+https://secure.flickr.com/groups/found-typography/pool/  
+
+https://secure.flickr.com/groups/fontspotting/pool/  
+
+https://secure.flickr.com/photos/id29/sets/72157634396874320/ Italy  
+
 https://www.flickr.com/photos/canecrabe/sets/72157623654883900/detail France (house names)
 
-https://www.flickr.com/groups/housenames/
+https://www.flickr.com/groups/housenames/  
 
-https://www.flickr.com/photos/birxphotos
+https://www.flickr.com/photos/birxphotos  
+
+https://secure.flickr.com/photos/98310387@N02/sets/72157634449403220 Lisbon  
+
 
 
 ## Instagram
@@ -415,6 +445,11 @@ https://www.flickr.com/photos/birxphotos
 https://tagboard.com/lm_typobarcelona Barcelona
 
 https://tagboard.com/typolisbon Lisbon
+
+http://instagram.com/viennacitytypeface Vienna
+
+http://instagram.com/urbantypography  
+
 
 
 ## Misc. (lists)
@@ -438,6 +473,7 @@ Street lettering from India and its neighbours
 http://poojasaxena.wordpress.com/2014/04/29/street-lettering-from-india-and-its-neighbours
 
 
+
 ## Projects that didn’t fly (yet)
 
 http://www.colettering.com  
@@ -445,12 +481,13 @@ http://focustype.com
 http://nyctype.com/ New York City  
 
 
+
 ## Museums, galleries, places, ...
 
 Buchstabenmuseum — Berlin (Germany)  
 http://www.buchstabenmuseum.de
 
-Musée de la céramique architecturale — Auneuil (France)
+Musée de la céramique architecturale — Auneuil (France)  
 https://fr.wikipedia.org/wiki/Mus%C3%A9e_de_la_c%C3%A9ramique_architecturale_d%27Auneuil
 
 Bibliothèque Forney — Paris (France)  
