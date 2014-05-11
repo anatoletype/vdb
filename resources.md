@@ -408,39 +408,95 @@ http://alaricgarnier.tumblr.com
 
 *Would be better to list streams dedicated to the subject, or direct links to collections/albums* ^pascal
 
-https://secure.flickr.com/photos/hardwig Berlin, Leipzig, St.Gallen …
 
-https://secure.flickr.com/photos/frankfrei wherever I go …
+**S T R E A M S**  
 
-https://secure.flickr.com/photos/opalescent/collections/72157632176211333/ France, Berlin, …
+Florian Hardwig  
+*Berlin, Leipzig, St.Gallen, …*  
+https://secure.flickr.com/photos/hardwig
 
-https://secure.flickr.com/photos/akalollip
+Fritz Grögel  
+*Berlin, Europe, wherever I go …*  
+https://secure.flickr.com/photos/frankfrei
 
-https://secure.flickr.com/photos/phospho Vienna
+Pascal Duez  
+*France, Berlin, Europe, …*  
+https://secure.flickr.com/photos/opalescent/collections/72157632176211333
 
-http://www.flickr.com/photos/h_porn-o_t Kassel, central West Germany
+Roland Hörmann  
+*Vienna, ...*  
+https://secure.flickr.com/photos/phospho
 
-https://secure.flickr.com/photos/cpbischof/
+Sankt Rainer  
+*Kassel, central West Germany*  
+http://www.flickr.com/photos/h_porn-o_t
 
-https://www.flickr.com/photos/27556454@N07/sets/72157623991937409/ Hamburg
+Claas Philipp Bischof  
+https://secure.flickr.com/photos/cpbischof
 
-https://secure.flickr.com/groups/found-typography/pool/  
-
-https://secure.flickr.com/groups/fontspotting/pool/  
-
-https://secure.flickr.com/photos/id29/sets/72157634396874320/ Italy  
-
-https://www.flickr.com/photos/canecrabe/sets/72157623654883900/detail France (house names)
-
-https://www.flickr.com/groups/housenames/  
-
+birx  
 https://www.flickr.com/photos/birxphotos  
 
-https://secure.flickr.com/photos/98310387@N02/sets/72157634449403220 Lisbon  
+akalollip
+*France, ...*  
+https://secure.flickr.com/photos/akalollip
 
-https://secure.flickr.com/photos/legardien/sets/72157635404265017 Mosaïque, carreaux, etc.
 
-https://secure.flickr.com/photos/legardien/sets/72157635321157301 France (house names)
+**S E T S**  
+
+*Hamburg*  
+https://www.flickr.com/photos/27556454@N07/sets/72157623991937409
+
+*Lisbon*  
+https://secure.flickr.com/photos/98310387@N02/sets/72157634449403220  
+
+*Mosaïque, carreaux, etc.*  
+https://secure.flickr.com/photos/legardien/sets/72157635404265017  
+*France (house names)*  
+https://secure.flickr.com/photos/legardien/sets/72157635321157301
+
+*Italy*  
+https://secure.flickr.com/photos/id29/sets/72157634396874320
+
+*France (house names)*  
+https://www.flickr.com/photos/canecrabe/sets/72157623654883900  
+
+*Project Neon*  
+https://secure.flickr.com/photos/catasterist/sets/72157625399190929
+
+*Neon Boneyard, Las Vegas*  
+https://secure.flickr.com/photos/idsgn/sets/72157626625825143/
+
+Michael Hochleitner  
+*Lettering Collection*  
+https://secure.flickr.com/photos/wasianed/sets/72157613581358111  
+*Street type*  
+https://secure.flickr.com/photos/wasianed/sets/72157602436959468  
+
+
+**G R O U P S**
+
+Found Typography  
+https://secure.flickr.com/groups/found-typography  
+
+Fontspotting  
+https://secure.flickr.com/groups/fontspotting
+
+TypeWalk  
+https://secure.flickr.com/groups/typewalk
+
+House Names  
+https://www.flickr.com/groups/housenames
+
+Storefront Tile  
+https://secure.flickr.com/groups/839547@N24
+
+Terrazzo Floors  
+https://www.flickr.com/groups/terrazzofloors
+
+Brass Under Foot  
+https://www.flickr.com/groups/brass
+
 
 
 
