@@ -420,7 +420,7 @@ Fritz Grögel
 https://secure.flickr.com/photos/frankfrei
 
 Pascal Duez  
-*France, Berlin, Europe, …*  
+*À bonnes enseignes — France, Berlin, Europe, …*  
 https://secure.flickr.com/photos/opalescent/collections/72157632176211333
 
 Roland Hörmann  
@@ -476,6 +476,9 @@ https://secure.flickr.com/photos/wasianed/sets/72157602436959468
 
 **G R O U P S**
 
+*There are tons of signs related groups, I don't think we should list them all ?  
+Just the more relevant ones. This is maybe where a star/voting feature would be useful ?* ^pascal
+
 Found Typography  
 https://secure.flickr.com/groups/found-typography  
 
@@ -497,7 +500,23 @@ https://www.flickr.com/groups/terrazzofloors
 Brass Under Foot  
 https://www.flickr.com/groups/brass
 
+Liquor Stores  
+https://www.flickr.com/groups/liquorstores
 
+Arrow Signs  
+https://www.flickr.com/groups/arrowsigns
+
+Fancy Diacritics  
+https://www.flickr.com/groups/fancy-diacritics
+
+Chromeography  
+https://www.flickr.com/groups/chromecharacters
+
+Enseignes de pierre, de fer et de bois  
+https://www.flickr.com/groups/1021756@N20
+
+Enseignes en fer forgé  
+https://www.flickr.com/groups/1065794@N21
 
 
 ## Instagram
