@@ -237,6 +237,15 @@ http://www.fontarte.com/project/typespotting-warszawa
 Typotextur (Leipzig, unpublished)  
 http://www.frankeckl.de/projects/typotextur
 
+Plaste und Elaste - Leuchtreklame in der DDR  
+ISBN 978-3-360-02107-6  
+http://www.ddr-museum.de/de/blog/thema-ddr/plaste-und-elaste---leuchtreklame-in-der-ddr  
+
+Oliver Linke  
+Von Asam bis Zrenner.  
+Auf den Spuren des Münchner Schildermalers Karl Blaschke.  
+ISBN 978-3-944334-08-0  
+http://www.augustdreesbachverlag.de/buecher/typografie/blaschke.html  
 
 
 ## Lettering manuals, albums & masters
@@ -552,8 +561,13 @@ Street lettering from India and its neighbours
 http://poojasaxena.wordpress.com/2014/04/29/street-lettering-from-india-and-its-neighbours
 
 Letters From Abroad  
-http://www.frerejones.com/blog/letters-from-abroad
+http://www.frerejones.com/blog/letters-from-abroad  
 
+Leuchtreklame in der DDR — Es werde Licht  
+http://www.spiegel.de/einestages/leuchtreklame-in-der-ddr-a-946692.html  
+
+TypeWalk Blaschke 05/2010  
+http://goo.gl/maps/HrUJY  
 
 
 ## Projects that didn’t fly (yet)
@@ -582,3 +596,9 @@ Kunstbibliothek — Berlin (Germany)
 http://www.smb.museum/museen-und-einrichtungen/kunstbibliothek/home.html
 
 Central Lettering Record at Central Saint Martins College of Art and Design — London (UK)  
+
+The Neon Muzeum — Warszawa (Poland)  
+http://www.neonmuzeum.org  
+
+The Neon Museum, Neon Boneyard — Las Vegas (USA)  
+http://www.neonmuseum.org  
