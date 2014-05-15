@@ -1,4 +1,4 @@
-Backup of http://pad.tn/p/epigraphy
+Backup and following of of http://pad.tn/p/epigraphy
 
 
 # Epigraphy, signs, vernacular letters, etc.  
@@ -199,7 +199,7 @@ http://www.eyrolles.com/Loisirs/Livre/confidences-sur-ceramique-9782950966124
 
 Store Front - The Disappearing Face of New York  
 New York Nights  
-http://urbanimagephotography.com/JAMESandKARLAMURRAYBooks2012.html
+http://urbanimagephotography.com/JAMESandKARLAMURRAYBooks2012.html  
 http://www.theguardian.com/cities/gallery/2014/apr/03/new-york-storefronts-what-a-difference-a-decade-makes
 
 Brooklyn Storefronts  
@@ -246,6 +246,27 @@ Von Asam bis Zrenner.
 Auf den Spuren des Münchner Schildermalers Karl Blaschke.  
 ISBN 978-3-944334-08-0  
 http://www.augustdreesbachverlag.de/buecher/typografie/blaschke.html  
+
+Ilona Karwinska  
+Polish Cold War Neon  
+Publisher: Mark Batty Publisher (November 2011)  
+ISBN: 978-1-935613-35-0  
+http://www.neonmuzeum.org/pages/publications.html  
+http://markbattypublisher.com/books/polish-cold-war-neon-2  
+
+Ilona Karwinska  
+Warsaw - Polish Neon  
+Publisher: Agora S.A. (December 15, 2008)  
+ISBN: 978-8375524697  
+http://www.neonmuzeum.org/pages/publications.html  
+http://www.agora.pl/agora/1,112544,6037069,Ksiazka__Polski_Neon__Warszawa_.html  
+
+Stan Van Steendam
+Brussels Type  
+Publisher: Uitgeverij Luster (January 15, 2014)  
+ISBN: 978-9460581168  
+http://www.lusterweb.com/items/205?locale=en  
+
 
 
 ## Lettering manuals, albums & masters
@@ -540,7 +561,7 @@ http://instagram.com/urbantypography
 
 
 
-## Misc. (lists)
+## Misc. (lists, articles, ...)
 
 Typography in Tana (Antananarivo, Madagascar)  
 http://hopefulenterprise.org/africa/images/typography_in_tana
@@ -568,6 +589,9 @@ http://www.spiegel.de/einestages/leuchtreklame-in-der-ddr-a-946692.html
 
 TypeWalk Blaschke 05/2010  
 http://goo.gl/maps/HrUJY  
+
+1950s-1960s: Polish Cold War Neon  
+http://www.retronaut.com/2011/12/polish-cold-war-neon-1950s
 
 
 ## Projects that didn’t fly (yet)
