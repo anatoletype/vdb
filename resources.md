@@ -261,12 +261,18 @@ ISBN: 978-8375524697
 http://www.neonmuzeum.org/pages/publications.html  
 http://www.agora.pl/agora/1,112544,6037069,Ksiazka__Polski_Neon__Warszawa_.html  
 
-Stan Van Steendam
+Stan Van Steendam  
 Brussels Type  
 Publisher: Uitgeverij Luster (January 15, 2014)  
 ISBN: 978-9460581168  
 http://www.lusterweb.com/items/205?locale=en  
 
+Søren Ulrik Thomsen & Jokum Rohde  
+København con amore  
+Publisher: Gyldendal  
+ISBN: 978-8702143171  
+http://www.saxo.com/dk/koebenhavn-con-amore_jokum-rohde_haeftet_9788702143171  
+http://www.microformats.dk/kort/streetview/conamorestreetview.html  
 
 
 ## Lettering manuals, albums & masters
@@ -470,6 +476,10 @@ https://www.flickr.com/photos/birxphotos
 akalollip
 *France, ...*  
 https://secure.flickr.com/photos/akalollip
+
+Thomas Hawk  
+*Neon*  
+https://secure.flickr.com/photos/thomashawk/collections/72157607760299439
 
 
 **S E T S**  
