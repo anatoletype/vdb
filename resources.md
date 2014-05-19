@@ -528,6 +528,9 @@ https://secure.flickr.com/groups/fontspotting
 TypeWalk  
 https://secure.flickr.com/groups/typewalk
 
+The Global Shopfront Library  
+https://secure.flickr.com/groups/shopfront  
+
 House Names  
 https://www.flickr.com/groups/housenames
 
@@ -547,7 +550,16 @@ Arrow Signs
 https://www.flickr.com/groups/arrowsigns
 
 Fancy Diacritics  
-https://www.flickr.com/groups/fancy-diacritics
+https://www.flickr.com/groups/fancy-diacritics  
+
+ſ, Langes s, long, medial or descending s (ſ)  
+https://secure.flickr.com/groups/1898946@N24  
+
+Stacked Type  
+https://secure.flickr.com/groups/stackedtype
+
+tegeltableau & tegeltableaus Fliesenbild Fliesenbilder Tilepanel  
+https://secure.flickr.com/groups/1290721@N20
 
 Chromeography  
 https://www.flickr.com/groups/chromecharacters
