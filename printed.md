@@ -230,13 +230,59 @@ Jean Midolle: Spécimen des Écritures modernes …
 Strasbourg: Emile Simon Fils, 1834
 
 n.a.: Album de Lettres à l’usage des Peintres.  
-Paris: Monrocq Fr., 1898.
+Paris: Monrocq Fr., 1898.  
+https://secure.flickr.com/photos/taffeta/sets/72157615009741871  
+https://secure.flickr.com/photos/taffeta/sets/72157626799326294  
 
 E. Véder: Le Peintre de Lettres, Encyclopédie Roret: Le Peintre de Lettres – Attributs, armoires, chiffres.  
 Paris: Mulo,1928.
 
 Riffaut, Toussaint, vergnaud & F. Malepeyre: Encyclopédie Roret – Peintre en Bâtiments, Vernisseur, Vitrier et Colleur de Papiers de Tenture.  
-Paris: L. Mulo, 1896, 1908 & 1924 [three editions].
+Paris: L. Mulo, 1896, 1908 & 1924 [three editions].  
+
+n.a.: La lettre en publicité et en architecture  
+Paris: École professionnelle de dessin industriel, 1944  
+https://secure.flickr.com/photos/taffeta/sets/72157633299609522  
+
+
+
+#### TO DO
+
+Modèles de lettres d’Art Nouveau  
+https://secure.flickr.com/photos/taffeta/sets/72157629908344298
+
+Album du peintre en batîment (1882)  
+https://secure.flickr.com/photos/taffeta/sets/72157625434351701  
+
+lettres à l'usage du peintre (~1900)  
+https://secure.flickr.com/photos/taffeta/sets/72157625552848034  
+
+le peintre de lettres a  
+https://secure.flickr.com/photos/taffeta/sets/72157622694759957  
+
+le peintre de lettres b  
+https://secure.flickr.com/photos/taffeta/sets/72157622877300618
+
+le peintre de lettres c  
+https://secure.flickr.com/photos/taffeta/sets/72157622813624521  
+
+l'artiste peintre de lettres  
+https://secure.flickr.com/photos/taffeta/sets/72157622804625062
+
+album de lettres n2  
+https://secure.flickr.com/photos/taffeta/sets/72157619513706468
+
+Lettres pour les peintres  
+https://secure.flickr.com/photos/taffeta/sets/72157615009741871
+
+
+#### B E L G I U M  
+
+E, A, Ducompex: Portefeuille du Peintre en Bâtiments  
+Album de Lettres, de tous styles et tous genres  
+Liège: Ch. Claesen Éditeur  
+https://secure.flickr.com/photos/taffeta/sets/72157638456752663
+
 
 
 #### G E R M A N Y  &  A U S T R I A
