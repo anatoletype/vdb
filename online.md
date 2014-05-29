@@ -185,13 +185,22 @@ https://www.flickr.com/photos/canecrabe/sets/72157623654883900
 https://secure.flickr.com/photos/catasterist/sets/72157625399190929
 
 *Neon Boneyard, Las Vegas*  
-https://secure.flickr.com/photos/idsgn/sets/72157626625825143/
+https://secure.flickr.com/photos/idsgn/sets/72157626625825143
+
+Gebrauchsgrafik (Grafik am Bau)  
+https://secure.flickr.com/photos/kunst-am-bau-ddr/sets/72157629146216811
 
 Michael Hochleitner  
 *Lettering Collection*  
 https://secure.flickr.com/photos/wasianed/sets/72157613581358111  
 *Street type*  
 https://secure.flickr.com/photos/wasianed/sets/72157602436959468  
+
+
+**G A L L E R I E S**  
+
+Manfred Gensicke  
+https://secure.flickr.com/photos/opalescent/galleries/72157644493116529
 
 
 **G R O U P S**
