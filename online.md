@@ -187,7 +187,7 @@ https://secure.flickr.com/photos/catasterist/sets/72157625399190929
 *Neon Boneyard, Las Vegas*  
 https://secure.flickr.com/photos/idsgn/sets/72157626625825143
 
-Gebrauchsgrafik (Grafik am Bau)  
+*Gebrauchsgrafik (Grafik am Bau)*  
 https://secure.flickr.com/photos/kunst-am-bau-ddr/sets/72157629146216811
 
 Michael Hochleitner  
@@ -196,11 +196,23 @@ https://secure.flickr.com/photos/wasianed/sets/72157613581358111
 *Street type*  
 https://secure.flickr.com/photos/wasianed/sets/72157602436959468  
 
+Boris Drenec (France, Marseille, ...)  
+*typoWork*  
+https://secure.flickr.com/photos/_boris/sets/72157594384498955  
+*urbanarkeology*  
+https://secure.flickr.com/photos/_boris/sets/72157603338875305  
+*urban derelict*  
+https://secure.flickr.com/photos/_boris/sets/1183023  
+
 
 **G A L L E R I E S**  
 
 Manfred Gensicke  
 https://secure.flickr.com/photos/opalescent/galleries/72157644493116529
+
+ Coiffeur, Coiffure, Friseúr, Frisur  
+ https://secure.flickr.com/photos/opalescent/galleries/72157644884072736  
+ https://secure.flickr.com/photos/opalescent/galleries/72157644925664071  
 
 
 **G R O U P S**
@@ -257,8 +269,13 @@ Enseignes de pierre, de fer et de bois
 https://www.flickr.com/groups/1021756@N20
 
 Enseignes en fer forgé  
-https://www.flickr.com/groups/1065794@N21
+https://www.flickr.com/groups/1065794@N21  
 
+Friseurläden / Hairdresser/ Barber-shop  
+https://secure.flickr.com/groups/1594847@N22
+
+le figaro  
+https://secure.flickr.com/groups/19956043@N00
 
 ## Instagram
 
