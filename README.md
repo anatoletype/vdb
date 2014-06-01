@@ -5,7 +5,12 @@
 Epigraphy, signs, vernacular letters, etc.  
 *Collecting the collectors...*
 
-Backup repository and project planning.
+Backup repository and project planning.  
+
+Ressources:  
+* [online](./online.md) [websites, blogs, articles, Flickrs, Tumblrs, ...]
+* [printed](./printed.md) [books, manuals, albums, ...]
+* [afk](./afk.md) [museums, galleries, places, archives, ...]
 
 ## Contributors
 

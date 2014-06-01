@@ -279,13 +279,21 @@ https://secure.flickr.com/groups/19956043@N00
 
 ## Instagram
 
-https://tagboard.com/lm_typobarcelona Barcelona
+Barcelona  
+https://tagboard.com/lm_typobarcelona
 
-https://tagboard.com/typolisbon Lisbon
+Lisbon  
+https://tagboard.com/typolisbon
 
-http://instagram.com/viennacitytypeface Vienna
+Vienna  
+http://instagram.com/viennacitytypeface
 
+Louise Fili (Roma, ...)  
+http://instagram.com/louisefili
+
+Melanie De Vrieze  
 http://instagram.com/urbantypography  
+
 
 
 
