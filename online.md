@@ -137,7 +137,9 @@ https://secure.flickr.com/photos/frankfrei
 
 Pascal Duez  
 *À bonnes enseignes — France, Berlin, Europe, …*  
-https://secure.flickr.com/photos/opalescent/collections/72157632176211333
+https://secure.flickr.com/photos/opalescent/collections/72157632176211333  
+*Galleries*  
+https://www.flickr.com/photos/opalescent/galleries
 
 Roland Hörmann  
 *Vienna, ...*  
@@ -189,6 +191,10 @@ https://secure.flickr.com/photos/idsgn/sets/72157626625825143
 
 *Gebrauchsgrafik (Grafik am Bau)*  
 https://secure.flickr.com/photos/kunst-am-bau-ddr/sets/72157629146216811
+
+LettError  
+*Signs*  
+https://secure.flickr.com/photos/letterror/sets/72157600170441085
 
 Michael Hochleitner  
 *Lettering Collection*  
