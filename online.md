@@ -210,6 +210,10 @@ https://secure.flickr.com/photos/_boris/sets/72157603338875305
 *urban derelict*  
 https://secure.flickr.com/photos/_boris/sets/1183023  
 
+jlggb  
+*Typographie urbaine*  
+https://secure.flickr.com/photos/jlggb/sets/72157621905424626
+
 
 **G A L L E R I E S**  
 
@@ -334,6 +338,11 @@ http://goo.gl/maps/HrUJY
 
 1950s-1960s: Polish Cold War Neon  
 http://www.retronaut.com/2011/12/polish-cold-war-neon-1950s
+
+jlggb — Coiffeur, Coiffure  
+http://jlggb.net/blog3/?tag=coiffeur  
+http://jlggb.net/blog3/?tag=coiffure  
+http://jlggb.net/blog2/?tag=coiffure  
 
 
 ## Projects that didn’t fly (yet)

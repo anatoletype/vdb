@@ -36,3 +36,6 @@ http://www.neonmuzeum.org
 
 The Neon Museum, Neon Boneyard — Las Vegas (USA)  
 http://www.neonmuseum.org  
+
+The American Sign Museum — Cincinnati (USA)  
+http://www.signmuseum.org
