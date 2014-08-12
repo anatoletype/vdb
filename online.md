@@ -287,6 +287,8 @@ https://secure.flickr.com/groups/1594847@N22
 le figaro  
 https://secure.flickr.com/groups/19956043@N00
 
+
+
 ## Instagram
 
 Barcelona  
@@ -303,6 +305,15 @@ http://instagram.com/louisefili
 
 Melanie De Vrieze  
 http://instagram.com/urbantypography  
+
+Typeatlas (Slovakia, ...)  
+http://instagram.com/typeatlas  
+
+
+
+## Pinterest
+
+http://www.pinterest.com/lilialega/signboards
 
 
 
@@ -343,6 +354,10 @@ jlggb — Coiffeur, Coiffure
 http://jlggb.net/blog3/?tag=coiffeur  
 http://jlggb.net/blog3/?tag=coiffure  
 http://jlggb.net/blog2/?tag=coiffure  
+
+« Tout le monde connaît Roger Excoffon »  
+http://rogerexcoffon.extrafine.fr  
+
 
 
 ## Projects that didn’t fly (yet)
