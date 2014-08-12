@@ -189,6 +189,12 @@ ISBN: 978-8702143171
 http://www.saxo.com/dk/koebenhavn-con-amore_jokum-rohde_haeftet_9788702143171  
 http://www.microformats.dk/kort/streetview/conamorestreetview.html  
 
+Louise Fili  
+Grafica della Strada — The Signs of Italy  
+ISBN-10: 1616892692  
+ISBN-13: 978-1616892692  
+http://www.papress.com/html/book.details.page.tpl?isbn=9781616892692  
+
 
 ## Lettering manuals, albums & masters
 
