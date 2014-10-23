@@ -195,6 +195,20 @@ ISBN-10: 1616892692
 ISBN-13: 978-1616892692  
 http://www.papress.com/html/book.details.page.tpl?isbn=9781616892692  
 
+Volker Plass  
+Stadtschriften – Was über Geschäften einst geschrieben stand  
+ISBN-10: 3993001931  
+ISBN-13: 978-3993001933  
+http://www.metroverlag.at/content/stadtschriften  
+
+ViennaCityTypeFace Teil 1  
+ISBN 978-3-9503679-0-4  
+http://www.viennacitytypeface.at/SeitenD/Buecher/vctf_S_buecher_vctf1.html  
+
+ViennaCityTypeFace Teil 2  
+ISBN 978-3-9503679-1-1  
+http://www.viennacitytypeface.at/SeitenD/Buecher/vctf_S_buecher_vctf2.html  
+
 
 ## Lettering manuals, albums & masters
 

@@ -69,14 +69,18 @@ http://typecollect.com
 OsloType - the most interesting and inspiring of Oslo’s signage  
 http://www.oslotype.com
 
+ViennaCityTypeFace  
+http://www.viennacitytypeface.at  
 
 
 ## Videos
 
-Philippe Buschinger : Le gothique urbain, un voyage du côté du bien et du mal  
+Philippe Buschinger: Le gothique urbain, un voyage du côté du bien et du mal  
 http://dai.ly/xyai24  
 http://www.centrepompidou.fr/cpv/ressource.action?param.id=FR_R-f328cf8d8bfc261275c17348c3c8f9f&param.idSource=FR_E-d3224f871287a2a2e3792421f558022#
 
+10 Seconds (process of hand-made neon signage)  
+http://vimeo.com/107112035  
 
 
 ## Tumblrs
@@ -117,6 +121,9 @@ http://grosseslettres.tumblr.com
 http://signsofberlin.tumblr.com  
 http://marcrouault.tumblr.com  
 http://alaricgarnier.tumblr.com  
+
+Vienna Stores  
+http://meergraf.tumblr.com/ViennaStores/1  
 
 
 
