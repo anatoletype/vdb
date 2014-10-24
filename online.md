@@ -365,6 +365,10 @@ http://jlggb.net/blog2/?tag=coiffure
 « Tout le monde connaît Roger Excoffon »  
 http://rogerexcoffon.extrafine.fr  
 
+Kansas Gravestone Lettering  
+http://www.sandislandblog.com/2014/03/kansas-gravestone-lettering.html  
+
+
 
 
 ## Projects that didn’t fly (yet)
