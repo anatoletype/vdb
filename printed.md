@@ -209,6 +209,21 @@ ViennaCityTypeFace Teil 2
 ISBN 978-3-9503679-1-1  
 http://www.viennacitytypeface.at/SeitenD/Buecher/vctf_S_buecher_vctf2.html  
 
+Marc Combier  
+Anciennes publicités murales  
+ISBN-10 2737345049  
+ISBN-13 978-2737345043  
+
+Marc Combier  
+Les publicités peintes de nos nationales — Tome 1  
+ISBN 978-2-35250-295-1  
+http://livres.histoireetcollections.com/publication/3369/les-publicites-peintes-de-nos-nationales-tome-1.html  
+
+Marc Combier  
+Les publicités peintes de nos nationales — Tome 2  
+ISBN 978-2-35250-391-0  
+http://livres.histoireetcollections.com/publication/3370/les-publicites-peintes-de-nos-nationales-tome-2.html  
+
 
 ## Lettering manuals, albums & masters
 

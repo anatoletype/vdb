@@ -73,6 +73,7 @@ ViennaCityTypeFace
 http://www.viennacitytypeface.at  
 
 
+
 ## Videos
 
 Philippe Buschinger: Le gothique urbain, un voyage du côté du bien et du mal  
@@ -81,6 +82,7 @@ http://www.centrepompidou.fr/cpv/ressource.action?param.id=FR_R-f328cf8d8bfc2612
 
 10 Seconds (process of hand-made neon signage)  
 http://vimeo.com/107112035  
+
 
 
 ## Tumblrs
@@ -292,7 +294,10 @@ Friseurläden / Hairdresser/ Barber-shop
 https://secure.flickr.com/groups/1594847@N22
 
 le figaro  
-https://secure.flickr.com/groups/19956043@N00
+https://secure.flickr.com/groups/19956043@N00  
+
+vieille publicité murale en france  
+https://www.flickr.com/groups/1500242@N21/pool/  
 
 
 
@@ -371,6 +376,16 @@ http://rogerexcoffon.extrafine.fr
 Kansas Gravestone Lettering  
 http://www.sandislandblog.com/2014/03/kansas-gravestone-lettering.html  
 
+lesmurspeintsmurmurent  
+Marc Combier et Anne-Françoise Tixier présentent les Anciennes
+Publicités Murales: Azur, Dubonnet, Suze, et les autres …  
+http://lesmurspeintsmurmurent.typepad.fr  
+
+Le site officiel du CONservatoire des Publicités Extérieures et Routières  
+http://conpermursreclames.uniterre.com  
+
+Publicités murales peintes — Will Hein  
+http://www.will-hien-photography.com/patrimoine_pubs.htm  
 
 
 
