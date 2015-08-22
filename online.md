@@ -133,6 +133,9 @@ http://urbantypo.tumblr.com
 Crumbly old signs of Andalucia  
 http://crumblyandalucia.tumblr.com  
 
+My Type of Sign  
+http://mytypeofsign.tumblr.com  
+
 
 
 ## Flickrs
