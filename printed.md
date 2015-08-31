@@ -224,6 +224,12 @@ Les publicités peintes de nos nationales — Tome 2
 ISBN 978-2-35250-391-0  
 http://livres.histoireetcollections.com/publication/3370/les-publicites-peintes-de-nos-nationales-tome-2.html  
 
+Nikki Villagomez  
+Culture+Typography — How Culture Affects Typography  
+ISBN-10: 1440338418  
+ISBN-13: 978-1440338410  
+http://www.howdesign.com/design-books/culture-typography-hand-lettering  
+
 
 ## Lettering manuals, albums & masters
 
