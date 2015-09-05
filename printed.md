@@ -191,9 +191,17 @@ http://www.microformats.dk/kort/streetview/conamorestreetview.html
 
 Louise Fili  
 Grafica della Strada — The Signs of Italy  
+Publisher: Princeton Architectural Press (September 2, 2014)  
 ISBN-10: 1616892692  
 ISBN-13: 978-1616892692  
 http://www.papress.com/html/book.details.page.tpl?isbn=9781616892692  
+
+Louise Fili  
+Graphique de la Rue — The Signs of Paris  
+Publisher: Princeton Architectural Press (September 1, 2015)  
+ISBN-10: 1616893133  
+ISBN-13: 978-1616893132  
+https://www.papress.com/html/book.details.page.tpl?isbn=9781616893132  
 
 Volker Plass  
 Stadtschriften – Was über Geschäften einst geschrieben stand  
