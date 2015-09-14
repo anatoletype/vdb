@@ -238,6 +238,16 @@ ISBN-10: 1440338418
 ISBN-13: 978-1440338410  
 http://www.howdesign.com/design-books/culture-typography-hand-lettering  
 
+James Clough  
+L’Italia Insegna  
+ISBN 978-88-98030-01-9  
+http://lazydog.eu/product/l-italia-insegna  
+
+James Clough  
+Signs of Italy  
+ISBN 978-88-98030-08-8  
+http://lazydog.eu/product/l-italia-insegna  
+
 
 ## Lettering manuals, albums & masters
 
