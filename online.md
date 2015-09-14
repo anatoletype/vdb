@@ -337,8 +337,23 @@ http://instagram.com/neonmuzeum
 
 ## Pinterest
 
-http://www.pinterest.com/lilialega/signboards
+http://www.pinterest.com/lilialega/signboards  
 
+
+
+## Facebook pages  
+
+Lettering da Torino  
+https://www.facebook.com/letteringdatorino  
+
+Lettering da Milano  
+https://www.facebook.com/letteringdamilano  
+
+Lettering da  Matera  
+https://www.facebook.com/letteringdamatera  
+
+Lettering da Genova  
+https://www.facebook.com/letteringdagenova
 
 
 
