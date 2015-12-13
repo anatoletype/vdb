@@ -72,6 +72,8 @@ http://www.oslotype.com
 ViennaCityTypeFace  
 http://www.viennacitytypeface.at  
 
+Lettering da  
+http://www.letteringda.com
 
 
 ## Videos
@@ -405,7 +407,7 @@ Marc Combier et Anne-Françoise Tixier présentent les Anciennes
 Publicités Murales: Azur, Dubonnet, Suze, et les autres …  
 http://lesmurspeintsmurmurent.typepad.fr  
 
-Le site officiel du CONservatoire des Publicités Extérieures et Routières  
+Le site officiel du Conservatoire des Publicités Extérieures et Routières  
 http://conpermursreclames.uniterre.com  
 
 Publicités murales peintes — Will Hein  
