@@ -75,6 +75,10 @@ http://www.viennacitytypeface.at
 Lettering da  
 http://www.letteringda.com
 
+Retro Script L.A.  
+Daily images of the cursive signs of Los Angeles  
+http://retroscriptla.com
+
 
 ## Videos
 
