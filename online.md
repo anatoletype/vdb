@@ -238,6 +238,10 @@ jlggb
 *Typographie urbaine*  
 https://secure.flickr.com/photos/jlggb/sets/72157621905424626
 
+Inga Plönnigs  
+*ROME 2016 – SHOP SIGNS*  
+https://www.flickr.com/photos/138657716@N08/albums/72157672250546662
+
 
 **G A L L E R I E S**  
 
