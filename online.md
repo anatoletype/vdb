@@ -343,6 +343,9 @@ http://instagram.com/typeatlas
 Neon Muzeum  
 http://instagram.com/neonmuzeum  
 
+Frere-Jones Type (New York City)  
+https://www.instagram.com/frerejones  
+
 
 
 ## Pinterest
