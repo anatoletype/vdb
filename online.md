@@ -349,6 +349,9 @@ http://instagram.com/neonmuzeum
 Frere-Jones Type (New York City)  
 https://www.instagram.com/frerejones  
 
+Typewalk  
+https://www.instagram.com/typewalk/ 
+
 
 
 ## Pinterest
