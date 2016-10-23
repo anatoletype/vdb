@@ -371,6 +371,18 @@ https://www.facebook.com/letteringdamatera
 Lettering da Genova  
 https://www.facebook.com/letteringdagenova
 
+Lettering da Venezia  
+https://www.facebook.com/letteringdavenezia  
+
+Lettering da Roma  
+https://www.facebook.com/letteringdaroma  
+
+Lettering da Faenza  
+https://www.facebook.com/letteringdafaenza  
+
+Lettering da Jesi  
+https://www.facebook.com/letteringdajesi  
+
 
 
 ## Misc. (lists, articles, ...)
