@@ -89,6 +89,9 @@ http://www.centrepompidou.fr/cpv/ressource.action?param.id=FR_R-f328cf8d8bfc2612
 10 Seconds (process of hand-made neon signage)  
 http://vimeo.com/107112035  
 
+Safari Typo !  
+http://creative.arte.tv/fr/safaritypo 
+
 
 
 ## Tumblrs
