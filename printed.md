@@ -248,6 +248,12 @@ Signs of Italy
 ISBN 978-88-98030-08-8  
 http://lazydog.eu/product/l-italia-insegna  
 
+San Francisco Neon: Survivors and Lost Icons  
+ISBN-10: 0692299076  
+ISBN-13: 978-0692299074  
+http://neonbook.xyz/
+
+
 
 ## Lettering manuals, albums & masters
 
