@@ -79,6 +79,10 @@ Retro Script L.A.
 Daily images of the cursive signs of Los Angeles  
 http://retroscriptla.com
 
+Berlin Typography  
+https://berlintypography.wordpress.com  
+
+
 
 ## Videos
 
@@ -132,6 +136,9 @@ http://grosseslettres.tumblr.com
 http://signsofberlin.tumblr.com  
 http://marcrouault.tumblr.com  
 http://alaricgarnier.tumblr.com  
+
+Letters from Berlin  
+http://letters-from-berlin.tumblr.com  
 
 Vienna Stores  
 http://meergraf.tumblr.com/ViennaStores/1  
