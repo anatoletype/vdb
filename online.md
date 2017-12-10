@@ -385,7 +385,11 @@ http://www.pinterest.com/lilialega/signboards
 
 ## Twitter
 
+Berlin Type  
 https://twitter.com/Berlin_Type  
+
+Vernacular Typography  
+https://twitter.com/vernaculartype
 
 
 
