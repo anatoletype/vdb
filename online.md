@@ -391,6 +391,12 @@ https://twitter.com/Berlin_Type
 Vernacular Typography  
 https://twitter.com/vernaculartype
 
+Ghost Signs  
+https://twitter.com/ghostsigns
+
+Dublin Ghost Signs  
+https://twitter.com/DublinGhostSign
+
 
 
 ## Facebook pages  
