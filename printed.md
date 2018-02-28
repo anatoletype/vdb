@@ -157,10 +157,10 @@ ISBN 978-3-360-02107-6
 http://www.ddr-museum.de/de/blog/thema-ddr/plaste-und-elaste---leuchtreklame-in-der-ddr  
 
 Oliver Linke  
-Von Asam bis Zrenner.  
+Von Asam bis Zrenner  
 Auf den Spuren des Münchner Schildermalers Karl Blaschke.  
 ISBN 978-3-944334-08-0  
-http://www.augustdreesbachverlag.de/buecher/typografie/blaschke.html  
+https://augustdreesbachverlag.de/products/art0071  
 
 Ilona Karwinska  
 Polish Cold War Neon  
