@@ -99,6 +99,9 @@ http://vimeo.com/107112035
 Safari Typo !  
 http://creative.arte.tv/fr/safaritypo 
 
+Die Geschichte der Leuchtreklame im Osten  
+https://www.mdr.de/mediathek/fernsehen/video-178900_zc-7748e51b_zs-1638fa4e.html  
+
 
 
 ## Tumblrs
