@@ -488,6 +488,9 @@ http://conpermursreclames.uniterre.com
 Publicités murales peintes — Will Hein  
 http://www.will-hien-photography.com/patrimoine_pubs.htm  
 
+Paris Re-Tale. The city’s spirit through its shop signs  
+https://www.pixartprinting.co.uk/content/paris-re-tale
+
 
 
 ## Projects that didn’t fly (yet)
