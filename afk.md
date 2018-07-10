@@ -46,7 +46,7 @@ http://stadtschrift.at
 Museum of Neon Art - Glendale (USA)  
 http://www.neonmona.org/
 
-Galeria Neon sign - Wroclaw (Poland)  
+Galeria Neon Side - Wroclaw (Poland)  
 https://www.facebook.com/pg/NEONSIDE  
 
  
