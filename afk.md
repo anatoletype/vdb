@@ -49,6 +49,9 @@ http://www.neonmona.org/
 Galeria Neon Side - Wroclaw (Poland)  
 https://www.facebook.com/pg/NEONSIDE  
 
+ The Museum of Neon Art - Glendale (USA)  
+ https://www.neonmona.org  
+ 
  
 
 ## Events
