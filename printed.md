@@ -256,6 +256,13 @@ http://neonbook.xyz/
 Ghostletters Vienna  
 http://www.ghostlettersvienna.com
 
+Debra Jane Seltzer   
+Vintage Signs of America  
+ISBN-10: 144566948X  
+ISBN-13: 978-1445669489   
+https://www.amberley-books.com/vintage-signs-of-america.html  
+
+
 
 ## Lettering manuals, albums & masters
 
