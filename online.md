@@ -491,6 +491,9 @@ http://www.will-hien-photography.com/patrimoine_pubs.htm
 Paris Re-Tale. The city’s spirit through its shop signs  
 https://www.pixartprinting.co.uk/content/paris-re-tale
 
+Vintage Signs of America - RoadsideArchitecture  
+http://www.roadarch.com/signs/1.html  
+
 
 
 ## Projects that didn’t fly (yet)
