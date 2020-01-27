@@ -405,6 +405,12 @@ https://twitter.com/ghostsigns
 Dublin Ghost Signs  
 https://twitter.com/DublinGhostSign
 
+Amsterdam Typography  
+https://twitter.com/amsterdam_type
+
+World of Typography  
+https://twitter.com/WorldTypography
+
 
 
 ## Facebook pages  
