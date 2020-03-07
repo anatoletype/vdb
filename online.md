@@ -88,6 +88,9 @@ http://dublinghostsigns.com
 Amsterdam Typography  
 https://www.amsterdamtypography.nl  
 
+Il était un centre-ville  
+Commerces disparus. Murs réclames. Boutiques et vieilles enseignes.  
+https://iletaituncentreville.com
 
 
 ## Videos
