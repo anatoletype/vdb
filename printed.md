@@ -141,10 +141,10 @@ Lettres du Havre
 http://editions-non-standard.com/books/lettres-du-havre
 
 Facades & Vitrines, Belgium (sold out)  
-http://stephanvanfleteren.com/en/portfolio/detail/facades-amp-vitrines
+https://www.stephanvanfleteren.com/books  
 
 Rome invisible  
-http://www.onestarpress.com/Rome-invisible?art=36
+http://www.onestarpress.com/book/philippe-buschinger-rome-invisible  
 
 Safari Typographique  
 http://www.onestarpress.com/Safari-Typographique?art=36
