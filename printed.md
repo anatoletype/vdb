@@ -106,16 +106,24 @@ Berlin & Leipzig: Verlag Heintze & Blanckertz, 1927–1943.
 Karbid (Berlin)  
 http://www.ypsilonediteur.com/fiche.php?id=118
 
-Hamburg Alphabet – Shop Sign Lettering in Hamburg  
-http://www.chriscampe.com/?page_id=162
+Hamburg Alphabet – Shop Sign Lettering in Hamburg   
+http://www.allthingsletters.com/portfolio/hamburg-alphabet  
 
 Confidences sur céramique  
 http://www.eyrolles.com/Loisirs/Livre/confidences-sur-ceramique-9782950966124
 
 Store Front - The Disappearing Face of New York  
-New York Nights  
-http://urbanimagephotography.com/JAMESandKARLAMURRAYBooks2012.html  
+isbn-13: 978-1584232278
+http://www.jamesandkarlamurray.com/JAMESandKARLAMURRAYBooks2015.html
 http://www.theguardian.com/cities/gallery/2014/apr/03/new-york-storefronts-what-a-difference-a-decade-makes
+
+Store Front II - A history preserved  
+isbn-13: 978-1584236047
+http://www.jamesandkarlamurray.com/JAMESandKARLAMURRAYBooks2015.html
+
+New York Nights   
+isbn: 978-1584235033  
+http://www.jamesandkarlamurray.com/JAMESandKARLAMURRAYBooks2015.html  
 
 Brooklyn Storefronts  
 http://books.wwnorton.com/books/978-0-393-33002-1
