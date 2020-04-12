@@ -164,6 +164,9 @@ http://crumblyandalucia.tumblr.com
 My Type of Sign  
 http://mytypeofsign.tumblr.com  
 
+Insegne Italiane  
+https://insegneitaliane.tumblr.com  
+
 
 
 ## Flickrs
