@@ -43,14 +43,11 @@ https://www.americansignmuseum.org
 Stadtschrift - Vienna (Austria)  
 http://stadtschrift.at
 
-Museum of Neon Art - Glendale (USA)  
-http://www.neonmona.org/
-
 Galeria Neon Side - Wroclaw (Poland)  
 https://www.facebook.com/pg/NEONSIDE  
 
- The Museum of Neon Art - Glendale (USA)  
- https://www.neonmona.org  
+The Museum of Neon Art - Glendale (USA)  
+https://www.neonmona.org  
  
  
 
