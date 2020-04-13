@@ -158,7 +158,8 @@ Typespotting Warszawa (Warsaw)
 http://www.fontarte.com/project/typespotting-warszawa
 
 Typotextur (Leipzig, unpublished)  
-http://www.frankeckl.de/projects/typotextur
+http://stefan-berndt.de  
+http://www.frankeckl.de   
 
 Plaste und Elaste - Leuchtreklame in der DDR  
 ISBN 978-3-360-02107-6  
