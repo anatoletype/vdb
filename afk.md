@@ -21,7 +21,7 @@ Musée de la céramique architecturale — Auneuil (France)
 https://fr.wikipedia.org/wiki/Mus%C3%A9e_de_la_c%C3%A9ramique_architecturale_d%27Auneuil
 
 Bibliothèque Forney — Paris (France)  
-http://equipement.paris.fr/bibliotheque-forney-18
+https://www.paris.fr/equipements/bibliotheque-forney-18  
 
 Enseignes | Musée Carnavalet - Histoire de la ville de Paris  
 http://www.carnavalet.paris.fr/fr/collections/enseignes
