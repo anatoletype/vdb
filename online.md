@@ -59,9 +59,6 @@ http://www.recapturist.com
 A Pile of Type: mainly Spain, Netherlands  
 http://apileoftype.com
 
-TypeCollect - Found Typography Feed  
-http://typecollect.com
-
 OsloType - the most interesting and inspiring of Oslo’s signage  
 http://www.oslotype.com
 
@@ -451,6 +448,9 @@ https://www.facebook.com/pg/GhostlettersVienna
 Tipos Paulistanos  
 A collection of architectural letterings, numbers and graphic elements found on buildings from São Paulo, Brazil.  
 https://www.facebook.com/tipospaulistanos  
+
+TypeCollect - Found Typography Feed   
+https://www.facebook.com/TypeCollect  
 
 
 ## Misc. (lists, articles, ...)
