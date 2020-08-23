@@ -412,8 +412,10 @@ Amsterdam Typography
 https://twitter.com/amsterdam_type
 
 World of Typography  
-https://twitter.com/WorldTypography
+https://twitter.com/WorldTypography  
 
+Barcelona Old Typography   
+https://twitter.com/bcnOLDtypo  
 
 
 ## Facebook pages  
