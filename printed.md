@@ -271,6 +271,11 @@ ISBN-10: 144566948X
 ISBN-13: 978-1445669489   
 https://www.amberley-books.com/vintage-signs-of-america.html  
 
+Patrice Picard
+Boutiques et devantures
+https://www.patricepicard.com/shop/dsc09022bb2_1b0001-0
+ISBN 979-10-699-6006-0
+ 
 
 
 ## Lettering manuals, albums & masters
