@@ -275,7 +275,14 @@ Patrice Picard
 Boutiques et devantures
 https://www.patricepicard.com/shop/dsc09022bb2_1b0001-0
 ISBN 979-10-699-6006-0
- 
+
+Alistair Hall  
+London Street Signs – A visual history of London’s street nameplates  
+Publisher: Batsford   
+Publication date: 3 September 2020  
+ISBN: 978-1-84994-621-6   
+https://www.londonstreetsigns.info  
+
 
 
 ## Lettering manuals, albums & masters
