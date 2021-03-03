@@ -283,6 +283,13 @@ Publication date: 3 September 2020
 ISBN: 978-1-84994-621-6   
 https://www.londonstreetsigns.info  
 
+Jesse Simon  
+Berlin Typography  
+Publisher: Prestel Verlag  
+Publication date: 23 March 2021  
+ISBN: 978-3-7913-8703-1  
+https://www.penguinrandomhouse.de/Buch/Berlin-Typography-dt-engl-/Jesse-Simon/Prestel/e575253.rhd  
+
 
 
 ## Lettering manuals, albums & masters
