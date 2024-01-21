@@ -461,6 +461,9 @@ https://www.facebook.com/tipospaulistanos
 TypeCollect - Found Typography Feed   
 https://www.facebook.com/TypeCollect  
 
+Um Porto Gráfico  
+https://www.facebook.com/umportografico  
+
 
 ## Misc. (lists, articles, ...)
 
