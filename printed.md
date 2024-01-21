@@ -290,6 +290,26 @@ Publication date: 23 March 2021
 ISBN: 978-3-7913-8703-1  
 https://www.penguinrandomhouse.de/Buch/Berlin-Typography-dt-engl-/Jesse-Simon/Prestel/e575253.rhd  
 
+Rita Múrias, Paulo Barata, Rúben Dias, Henrique Cayatte, Luisa Ferreira  
+Cidade Gráfica – Letreiros e Reclames de Lisboa no Século XX  
+ISBN: 9789898772107   
+https://www.goodreads.com/book/show/62335183-cidade-gr-fica  
+
+Manuela Paula   
+Lisboa Gráfica  
+Publisher: Gradiva  
+SBN 978-972-662-944-3  
+https://www.gradiva.pt/catalogo/14336/lisboa-grafica  
+
+Manuela Paula    
+Porto Gráfico    
+Publisher: Gradiva  
+ISBN 978-989-616-010-4    
+https://www.gradiva.pt/catalogo/14399/porto-grafico
+
+For Your Reference: Books About Signs
+https://letterformarchive.org/news/books-about-signs/
+
 
 
 ## Lettering manuals, albums & masters
