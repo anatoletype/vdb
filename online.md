@@ -348,10 +348,10 @@ https://www.flickr.com/groups/1500242@N21/pool/
 ## Instagram
 
 Barcelona  
-https://tagboard.com/lm_typobarcelona
+https://www.picuki.com/tag/lm_typobarcelona
 
 Lisbon  
-https://tagboard.com/typolisbon
+https://www.picuki.com/tag/typolisbon  
 
 Vienna  
 http://instagram.com/viennacitytypeface
