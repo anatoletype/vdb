@@ -308,7 +308,14 @@ ISBN 978-989-616-010-4
 https://www.gradiva.pt/catalogo/14399/porto-grafico
 
 For Your Reference: Books About Signs
-https://letterformarchive.org/news/books-about-signs/
+https://letterformarchive.org/news/books-about-signs
+
+Kathy Kikkert 
+Hollywood Signs  
+The Golden Age of Glittering Graphics and Glowing Neon  
+Publisher: Angel city press  
+ISBN: 978-1-62640-125-9  
+https://www.angelcitypress.com/products/hosi  
 
 
 
