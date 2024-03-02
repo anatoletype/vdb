@@ -15,9 +15,9 @@ Ressources:
 
 ## Contributors
 
-[@pascalduez](https://twitter.com/pascalduez),
-[@hardwig](https://twitter.com/hardwig),
-[@fritzgroegel](https://twitter.com/fritzgroegel)
+[@pascalduez](https://mamot.fr/@pascalduez),
+[@hardwig](https://mastodon.social/@fhardwig),
+[@fritzgroegel](https://typo.social/@fritz_groegel)
 
 
 ## License
