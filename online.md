@@ -91,6 +91,9 @@ https://romu70.github.io/galleries
 San Francisco Ghost Sign Mapping Project  
 https://sfghostsigns.com  
 
+Belgrade type - Collecting street typography of Belgrade  
+https://bgtype.alexeystar.com  
+
 
 
 ## Videos
