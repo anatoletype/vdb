@@ -94,7 +94,7 @@ https://sfghostsigns.com
 Belgrade type - Collecting street typography of Belgrade  
 https://bgtype.alexeystar.com  
 
-Thaipography Archive 
+Thaipography Archive   
 https://www.thaipography-archive.com
 
 
